@@ -1,0 +1,1 @@
+This software is opensourced intelectual property of central state university and is to be used as a jump starter into sustainable ag.
